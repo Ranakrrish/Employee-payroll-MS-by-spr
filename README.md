@@ -1,1 +1,1 @@
-IT iis developed bt SPR
+It is developed bt SPR
